@@ -2,28 +2,28 @@
 
 **Cosplay 资源聚合 · 每日精选更新** — 上百个资源站会员 · 精选直发
 
-## 🔎 [一页看全 243 套 →](https://diduv5.github.io/cosv5-daily/)
+## 🔎 [一页看全 254 套 →](https://diduv5.github.io/cosv5-daily/)
 
-全部条目平铺在一页，可按 coser / 月份筛选，点条目直达 Telegram 原帖。更新于 2026-11-15。
+全部条目平铺在一页，可按 coser / 月份筛选，点条目直达 Telegram 原帖。更新于 2026-11-17。
 
-**243 套作品 · 97 位 coser · 13 部 AI 短剧**
+**254 套作品 · 99 位 coser · 13 部 AI 短剧**
 
 ---
 
 ## 🆕 最新 12 条
 
+- [鸣潮 心月狐 清宵](https://t.me/COSV5_VIP/3557) — 兔团子OxO · 50P-1.79GB · 2026-11-17
+- [大主宰 清衍静 大胃袋](https://t.me/COSV5_VIP/3552) — 钛合金TiTi · 24P-156MB · 2026-11-17
+- [碧蓝航线 狮·裂口女](https://t.me/COSV5_VIP/3547) — 饭堂 · 41P-2.18GB · 2026-11-16
+- [大主宰 清衍静](https://t.me/COSV5_VIP/3541) — 钛合金TiTi · 123P5V-5.87GB · 2026-11-16
+- [碎星](https://t.me/COSV5_VIP/3536) — Aimeili粒粒 · 59P-823MB · 2026-11-16
+- [碧蓝航线 美因茨](https://t.me/COSV5_VIP/3526) — 洛宝ouo · 45P1V-984MB · 2026-11-16
+- [鸣潮 千咲 女仆](https://t.me/COSV5_VIP/3521) — 兔团子OxO · 23P-799MB · 2026-11-16
+- [情趣婚纱](https://t.me/COSV5_VIP/3516) — 蘑菇头 · 24P-137MB · 2026-11-16
+- [鸣潮 卡提希娅](https://t.me/COSV5_VIP/3511) — 兔团子OxO · 22P-878MB · 2026-11-16
+- [鸣潮 绯雪](https://t.me/COSV5_VIP/3506) — 兔团子OxO · 28P-1.28GB · 2026-11-16
+- [鸣潮 达妮娅](https://t.me/COSV5_VIP/3501) — 兔团子OxO · 27P-819MB · 2026-11-16
 - [碧蓝航线 天狼星誓约](https://t.me/COSV5_VIP/3492) — 夏夏子(Natsuko · 100P3V-908MB · 2026-11-15
-- [鸣潮 心月狐](https://t.me/COSV5_VIP/3483) — 夏夏子(Natsuko · 118P4V-1.22GB · 2026-11-15
-- [NIKKE 拉毗泳装](https://t.me/COSV5_VIP/3474) — 夏夏子(Natsuko · 79P1V-507MB · 2026-11-15
-- [齁齁僵尸](https://t.me/COSV5_VIP/3464) — 饭堂 · 41P-1.69GB · 2026-11-13
-- [尼尔 2B 兔女郎](https://t.me/COSV5_VIP/3459) — 清水由乃 · 77P-993MB · 2026-11-12
-- [蔚蓝档案 天雨亚子](https://t.me/COSV5_VIP/3453) — 蜜瓜冻冻乳 · 27P1V-484MB · 2026-11-11
-- [26.10 真爱特写包](https://t.me/COSV5_VIP/3444) — 纸悦Etsu_ko · 94P-1.14GB · 2026-11-10
-- [私房浴室](https://t.me/COSV5_VIP/3439) — 二佐Nisa · 45P3V-6.11GB · 2026-11-10
-- [武装女子](https://t.me/COSV5_VIP/3434) — 纸悦Etsu_ko · 39P-548MB · 2026-11-10
-- [2026年10月 计划-A](https://t.me/COSV5_VIP/3425) — 星之迟迟 · 156P-990MB · 2026-11-06
-- [蔚蓝档案 妃咲 黑白游戏 02](https://t.me/COSV5_VIP/3420) — 凉月MAYOi · 53P-943MB · 2026-11-05
-- [蔚蓝档案 妃咲 黑白游戏 01](https://t.me/COSV5_VIP/3415) — 凉月MAYOi · 60P-1.13GB · 2026-11-05
 
 ---
 
