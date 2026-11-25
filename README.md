@@ -2,16 +2,17 @@
 
 **Cosplay 资源聚合 · 每日精选更新** — 上百个资源站会员 · 精选直发
 
-## 🔎 [一页看全 266 套 →](https://diduv5.github.io/cosv5-daily/)
+## 🔎 [一页看全 267 套 →](https://diduv5.github.io/cosv5-daily/)
 
-全部条目平铺在一页，可按 coser / 月份筛选，点条目直达 Telegram 原帖。更新于 2026-11-23。
+全部条目平铺在一页，可按 coser / 月份筛选，点条目直达 Telegram 原帖。更新于 2026-11-24。
 
-**266 套作品 · 105 位 coser · 13 部 AI 短剧**
+**267 套作品 · 106 位 coser · 13 部 AI 短剧**
 
 ---
 
 ## 🆕 最新 12 条
 
+- [暗序](https://t.me/COSV5_VIP/3646) — 翎梵& Aimeili粒粒 · 45P-365MB · 2026-11-24
 - [乌托邦](https://t.me/COSV5_VIP/3637) — 栖和霜& 司喵喵mini · 79P-640MB · 2026-11-23
 - [rurudo 小恶魔](https://t.me/COSV5_VIP/3628) — 降雪跳动 · 51P-0.97GB · 2026-11-23
 - [明日方舟 祀](https://t.me/COSV5_VIP/3619) — 白栎Shirly · 166P33V-9.2GB · 2026-11-22
@@ -23,7 +24,6 @@
 - [色欲女修](https://t.me/COSV5_VIP/3581) — Aimeli粒粒 · 55P-415MB · 2026-11-18
 - [DropOut 七条学姐](https://t.me/COSV5_VIP/3576) — 奶茶不叮(milkypurin · 32P1V-61MB · 2026-11-17
 - [2026生日电子版](https://t.me/COSV5_VIP/3567) — 蜜汁猫裘 · 197P1V-8.45GB · 2026-11-17
-- [鸣潮 秧秧 玄翎](https://t.me/COSV5_VIP/3562) — 兔团子OxO · 23P-971MB · 2026-11-17
 
 ---
 
