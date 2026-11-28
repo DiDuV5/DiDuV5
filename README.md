@@ -2,16 +2,20 @@
 
 **Cosplay 资源聚合 · 每日精选更新** — 上百个资源站会员 · 精选直发
 
-## 🔎 [一页看全 273 套 →](https://diduv5.github.io/cosv5-daily/)
+## 🔎 [一页看全 277 套 →](https://diduv5.github.io/cosv5-daily/)
 
-全部条目平铺在一页，可按 coser / 月份筛选，点条目直达 Telegram 原帖。更新于 2026-11-26。
+全部条目平铺在一页，可按 coser / 月份筛选，点条目直达 Telegram 原帖。更新于 2026-11-27。
 
-**273 套作品 · 109 位 coser · 13 部 AI 短剧**
+**277 套作品 · 109 位 coser · 13 部 AI 短剧**
 
 ---
 
 ## 🆕 最新 12 条
 
+- [鸣潮 尤诺](https://t.me/COSV5_VIP/3724) — 兔团子OxO · 31P-1.36GB · 2026-11-27
+- [黑衬衫](https://t.me/COSV5_VIP/3718) — Aimeili粒粒 · 52P-524MB · 2026-11-27
+- [麦麦女郎](https://t.me/COSV5_VIP/3709) — Aimeili粒粒 · 70P-667MB · 2026-11-27
+- [宅女的游戏](https://t.me/COSV5_VIP/3700) — Aimeili粒粒 · 73P-795MB · 2026-11-27
 - [棕色尘埃 达丽安 兔女郎](https://t.me/COSV5_VIP/3695) — 饭堂 · 34P-1.51GB · 2026-11-26
 - [千和之妖](https://t.me/COSV5_VIP/3689) — 翎梵& 娅子 · 69P1V-1.96GB · 2026-11-26
 - [欲望痴女](https://t.me/COSV5_VIP/3680) — 翎梵& 茂木希子 · 80P-1.31GB · 2026-11-25
@@ -20,10 +24,6 @@
 - [篝火女巫](https://t.me/COSV5_VIP/3651) — 翎梵& 茂木希子 · 97P-1.92GB · 2026-11-25
 - [暗序](https://t.me/COSV5_VIP/3646) — 翎梵& Aimeili粒粒 · 45P-365MB · 2026-11-24
 - [乌托邦](https://t.me/COSV5_VIP/3637) — 栖和霜& 司喵喵mini · 79P-640MB · 2026-11-23
-- [rurudo 小恶魔](https://t.me/COSV5_VIP/3628) — 降雪跳动 · 51P-0.97GB · 2026-11-23
-- [明日方舟 祀](https://t.me/COSV5_VIP/3619) — 白栎Shirly · 166P33V-9.2GB · 2026-11-22
-- [蔚蓝档案 妃咲 同人花嫁](https://t.me/COSV5_VIP/3610) — 封疆疆 · 38P-837MB · 2026-11-20
-- [人妻的xx艺术](https://t.me/COSV5_VIP/3605) — 翎梵& GIGI · 48P-670MB · 2026-11-19
 
 ---
 
